@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Fwoeni
-- 👀 I’m interested in chemistry
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me idk email lol
+Hey Hey my names fwoeni im a chemist
+
+I play games like minecraft(modded) and league of legends
+
+to sum it up im everyones nightmare
 
 <!---
 Fwoeni/Fwoeni is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
