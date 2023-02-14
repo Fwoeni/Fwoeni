@@ -1,6 +1,6 @@
 Hey Hey my names fwoeni im a chemist
 
-I play games like minecraft(modded) stellaris
+I play games like minecraft(modded) and stellaris
 
 to sum it up im everyones nightmare
 
